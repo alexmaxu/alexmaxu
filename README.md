@@ -1,4 +1,4 @@
-![Twitter header - 5](https://github.com/user-attachments/assets/79d19cd1-fcf3-49e7-9049-a92681b543f9)
+![Twitter header - 5-2](https://github.com/user-attachments/assets/6326e047-1e62-48e0-abee-d0892f7923ac)
 
 ## Desarrollador iOS | Ingeniero de Diseño Industrial y Desarrollo de Producto
 
